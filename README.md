@@ -1,0 +1,7 @@
+- Eai meu nome é Kaic
+- Estou interesado em ser BeatMaker
+- Atualmente estou aprendendo a \produzir beat
+- Estou procurando ajudar pessoas que estão quererndo fazer Música
+- Você pode mandar sua referencia ou voz em Gmail ou outra rede social
+- Gomes Dos Santos.
+- Tenho 15 Anos e sou muito amigavel e gente boa
